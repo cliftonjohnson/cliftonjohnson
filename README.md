@@ -29,7 +29,7 @@ Welcome to my GitHub! I’m Clifton Johnson, a transformational leader passionat
 
 ## 📫 How to reach me ...
 - **LinkedIn**: [Clifton Ray Johnson](https://www.linkedin.com)
-- **Email**: clifton.johnson@gsa.gov or clifton.johnson@theclearing.com  
+- **Email**: clifton.johnson@theclearing.com or cliftonrayjohnson@gmail.com 
 
 ---
 
